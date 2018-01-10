@@ -1,1 +1,0 @@
-bu da bir deneme
